@@ -1,1 +1,6 @@
-# Nama-Zidan-Daffa-NIM-2409116056-Praktikup-DDP
+Nama : Zidan Daffa Ramadhan
+NIM : 2409116056
+
+skdjsdsdf
+sdfsdfsdgsfg
+asd abaebafvab
